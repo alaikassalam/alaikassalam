@@ -1,5 +1,5 @@
 # 💫 About Me:
-⚡ I'm studying undergraduate<br>🤝 I study informatics engineering<br>👯 I’m looking to collaborate<br>🌱 I’m currently learning<br>💬 Ask me about
+⚡ I'm studying undergraduate<br>🤝 I study informatics engineering<br>👯 I’m looking to collaborate<br>🌱 I’m currently learning<br>
 
 
 ## 🌐 Socials:
